@@ -35,14 +35,32 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A treatise of the great and generall daye of iudgement necessarie for euerie Christian that wisheth 
+
+1. The contents of the Praiers.
+
+1. ❧ TO THE Right Worſhipfull, and my very good friends, LESTRANGE MORDAVNT of Maſsingham Hall, in the County of Norfolke Eſquire, and M• MARGARET MORDAVNT his louing bedfellow, Eternall welfare, and euerlaſting happines in Chriſt Ieſus our Lord and Sauiour.
+
 #####Body#####
 
-1. A ſhort death-bed Dialogue.
+1. A Treatiſe of the Great and general day of Iudgment: neceſſary for euery Chriſtian that wiſheth good ſucceſſe to his ſoule, at that great and terrible day.
 
-1. A thanksgiuing for our late deliuerance.
+1. A ſhorte diſputation betweene the deuill and the poore ſoule of a Chriſtian.
 
-1. A praier comprehending the matter of the laſt iudgement.
+    _ A ſhort death-bed Dialogue.
+
+1. Morning prayer.
+
+1. Euening Prayer.
+
+    _ A thanksgiuing for our late deliuerance.
+
+    _ A praier comprehending the matter of the laſt iudgement.
+
+1. A ſhort prayer of purpoſe againſt Sathans aſſaults.
+
+1. A ſhort prayer at hand vpon all occaſions.
+
+1. A prayer for all ſorts.
 
 **Types of content**
 
